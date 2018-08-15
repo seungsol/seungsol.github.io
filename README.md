@@ -1,1 +1,0 @@
-# seungsol.github.io
